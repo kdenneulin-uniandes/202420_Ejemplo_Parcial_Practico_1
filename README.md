@@ -1,3 +1,8 @@
+Katina Denneulin Roncancio 
+
+202424854 
+
+
 # Ejemplo Parcial Práctico 1
 
 ## Instrucciones
